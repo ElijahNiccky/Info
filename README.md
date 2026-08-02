@@ -30,5 +30,9 @@ Do not copy,screenshot,color pick my skins!inspo is okay (Who would even do that
 
 
 Please be VERY aware I don't know ball. example:p!atd,etc.I live under a rock okay and I'm currently stuck in one fandom or few fandoms. Please don't make fun of me since its one of my insecurity. Call me a larp then if I dont know what an individual is talking about T_T
+-
 
+Public chats can be off at times when I'm busy or don't wanna be distracted when I am doing something
+
+I love gifted skins👀
 
