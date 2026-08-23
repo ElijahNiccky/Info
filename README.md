@@ -69,7 +69,7 @@ Please be VERY aware I don't know ball. example: music bands, music artists, fan
 - Scythekit (iwc) 
 
 
-
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 Public chats can be off at times when I'm busy or don't wanna be distracted when I am doing something
 
