@@ -39,19 +39,34 @@ Please be VERY aware I don't know ball. example: music bands, music artists, fan
 -
 
 # Ships I don't like or neutral but for those who ship the ones I don't like, iwc(instead of being displayed as dni, it'll be "Dont bring up that topic around me" unless its actual ship I don't REALLY tolerate) 
+
 - Medboard (iwc) 
+
 - Coilspace (Dni) 
+
 - any Subspace ship unless Subkit, Hyperspace, Katanaspace(srry), Substaff, Brokerspace.
+
 - skatestaff(neutral)
+
 - Medhammer(Dont.jump.me. I don't like it. iwc)
+
 - boomspace(I don't see the vision but neutral)
+
 - Vinegraft (how r y'all shipping it..Anyways, neutral)
+
 - Swordhive (GO.AWAY. dni)
+
 - Coilshot (neutral)
+
 - Katanastaff(avoid bringing that topic to me) 
+
 - Vinelaser (avoid bringing that topic to me)
+
 - Banlaser (iwc)
+
 - Medshot (?? iwc)
+
+- Scythekit (iwc) 
 
 
 
