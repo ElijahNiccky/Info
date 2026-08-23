@@ -26,6 +26,8 @@ _(This is to avoid confusion. I kinda Subspace myself and Yumeship with him ok? 
 
 I'm a short tempered person but its okay! Only happens when you trigger me or slightly but will show signs of dryness or uncomfortable reactions so please apologize if you do!
 
+can be sensitive or moody
+
 Do not annoy me too much or still refuse to stop even when I tell an individual to stop their actions. It will upset me
 
 I may sound selfish at times or too prideful but I try my best not to be too much.
