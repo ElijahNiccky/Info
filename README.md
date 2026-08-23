@@ -42,4 +42,4 @@ Public chats can be off at times when I'm busy or don't wanna be distracted when
 
 I love gifted skins👀
 
-<img src="https://github.com/user-attachments/assets/96a50949-6b81-4d03-8d5b-17749cefb0a5" width=200 length=2000/>
+<img src="https://github.com/user-attachments/assets/96a50949-6b81-4d03-8d5b-17749cefb0a5" width=2000 length=2000/>
