@@ -13,7 +13,7 @@ I might be bad at comforting ppl who are venting or may sound lacking of empathy
 Basic DNI.
 
 
--I really love front cuddles... yk laying in front of the player or smt_
+__I really love front cuddles... yk laying in front of the player or smt__
 
 
 
