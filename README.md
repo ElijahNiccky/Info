@@ -12,7 +12,12 @@ I might be bad at comforting ppl who are venting or may sound lacking of empathy
 
 Basic DNI.
 
-I really love front cuddles. Also I can be clingy at times whenever I feel lonely!
+
+-I really love front cuddles... yk laying in front of the player or smt_
+
+
+
+. Also I can be clingy at times whenever I feel lonely!
 **c×h is very encouraged!!! Unless stated as dni in my name^_\\**
 
 _(I can be attacked for this one but this is to avoid confusion. I kin Subspace myself and Yumeship with him ok? I'm sorry but there are times im not in the mood about my self shipping)_
@@ -29,7 +34,7 @@ I can talk too much :,D especially when its a passion topic!
 Do not copy,screenshot,color pick my skins!inspo is okay (Who would even do that bru my ponies are ugly)
 
 
-Please be VERY aware I don't know ball. example:music bands, music artists,fandoms,etc.I live under a rock okay and I'm currently stuck in one fandom or few fandoms. Please don't make fun of me since its one of my insecurity. Call me a larp then if I dont know what an individual is talking about T_T
+Please be VERY aware I don't know ball. example: music bands, music artists, fandoms, etc.I live under a rock okay and I'm currently stuck in one fandom or few fandoms. Please don't make fun of me since its one of my insecurity. I feel stupid and nervous if I dont know what you/they are talking about T_T
 -
 
 Public chats can be off at times when I'm busy or don't wanna be distracted when I am doing something
