@@ -11,7 +11,7 @@ Subspace yume! doubles are okay and yes I love subspace yumes that are sharing
 I might be bad at comforting ppl who are venting or may sound lacking of empathy so its kinda a bit hard for me. Apologies!
 -
 
-Basic DNI.
+basic dni criteria
 
 
 __I really love front cuddles... yk laying in front of the player or smt__
