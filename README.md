@@ -8,6 +8,11 @@ Greetings, some info to know what to avoid or be aware of actions around me!
 
 Subspace yume! doubles are okay and yes I love subspace yumes that are sharing
 
+
+
+I ship Subtana and Subkit, my apologies 
+
+
 I might be bad at comforting ppl who are venting or may sound lacking of empathy so its kinda a bit hard for me. Apologies!
 -
 
