@@ -50,11 +50,11 @@ Please be VERY aware I don't know ball. example: music bands, music artists, fan
 
 - skatestaff(neutral)
 
-- Medhammer(Dont.jump.me. I don't like it. iwc)
+- Medhammer(Iwc )
 
-- boomspace(I don't see the vision but neutral)
+- boomspace(neutral)
 
-- Vinegraft (how r y'all shipping it..Anyways, neutral)
+- Vinegraft ( neutral)
 
 - Swordhive (GO.AWAY. dni)
 
