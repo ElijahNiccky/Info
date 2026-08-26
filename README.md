@@ -26,7 +26,7 @@ __I really love front cuddles... yk laying in front of the player or smt__
 . Also I can be clingy at times whenever I feel lonely!
 **c×h is very encouraged!!! Unless stated as dni in my name^_\\**
 
-_(This is to avoid confusion. I kinda Subspace myself and Yumeship with him ok? I'm sorry but there are times im not in the mood for being his wife for some time. )_
+_(This is to avoid confusion. I kinda 𝙛𝙞𝙘𝙩𝙠𝙞𝙣 Subspace myself and Yumeship with him ok? I'm sorry but there are times im not in the mood for being his wife for some time. )_
 -
 
 I'm a short tempered person but its okay! Only happens when you trigger me or slightly but will show signs of dryness or uncomfortable reactions so please apologize if you do!
