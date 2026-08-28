@@ -1,6 +1,8 @@
 <div align=center>
 <img src="https://github.com/user-attachments/assets/72394481-077d-4d5e-9a01-4625135f12d0" width=2000 length=2000/>
 
+![👀](https://komarev.com/ghpvc/?username=ElijahNiccky&label=👀%20&color=ff7fd8&style=flat)
+
 # info (might be long) 
 
 Greetings, some info to know what to avoid or be aware of actions around me!
