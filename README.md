@@ -47,35 +47,7 @@ Do not copy,screenshot,color pick my skins!inspo is okay (Who would even do that
 Please be VERY aware I don't know ball. example: music bands, music artists, fandoms, etc.I live under a rock okay and I'm currently stuck in one fandom or few fandoms. Please don't make fun of me since its one of my insecurity. I feel stupid and nervous if I dont know what you/they are talking about T_T
 -
 
-# Ships I don't like or neutral but for those who ship the ones I don't like, iwc(instead of being displayed as dni, it'll be "Dont bring up that topic around me" unless its actual ship I don't REALLY tolerate) 
 
-- Medboard (iwc) 
-
-- Coilspace (Dni) 
-
-- any Subspace ship unless Subkit, Hyperspace, Katanaspace(srry), Substaff, Brokerspace.
-
-- skatestaff(neutral)
-
-- Medhammer(Iwc )
-
-- boomspace(neutral)
-
-- Vinegraft ( neutral)
-
-- Swordhive (GO.AWAY. dni)
-
-- Coilshot (neutral)
-
-- Katanastaff(avoid bringing that topic to me) 
-
-- Vinelaser (avoid bringing that topic to me)
-
-- Banlaser (iwc)
-
-- Medshot (?? iwc)
-
-- Scythekit (iwc) 
 
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
