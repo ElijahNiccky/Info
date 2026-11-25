@@ -1,49 +1,16 @@
 <div align=center>
 <img src="https://github.com/user-attachments/assets/72394481-077d-4d5e-9a01-4625135f12d0" width=2000 length=2000/>
 
-![👀](https://komarev.com/ghpvc/?username=ElijahNiccky&label=👀%20&color=ff7fd8&style=flat)
-
-# info (might be long) 
-
-Greetings, some info to know what to avoid or be aware of actions around me!
--
-
-Subspace yume! doubles are okay 
-
-
-I might be bad at comforting ppl who are venting or may sound lacking of empathy so its kinda a bit hard for me. Apologies!
+info
 -
 
 No DNI. I choose my actions. 
 
+I can be sensitive at some time— depending on what I feel or how I'm doing in the moment.
 
-__I really love front cuddles^_^__
+I'm often low on social battery for reasons and might speak to close friends only but I can have exceptions, 
 
-
-
-. Also I can be clingy at times whenever I feel lonely! Tell me if its annoying, 
-**c×h is very encouraged!!! Unless stated as dni in my name^_\\**
-
-_(This is to avoid confusion. I kinda 𝙛𝙞𝙘𝙩𝙠𝙞𝙣 Subspace myself and Yumeship with him ok? I'm sorry but there are times im not in the mood for being inlove for some time. )_
--
-
-I'm a short tempered person but its okay! Only happens when you trigger me or slightly but will show signs of dryness or uncomfortable reactions so please apologize if you do!
-
-can be sensitive or moody
-
-Do not annoy me too much or still refuse to stop even when I tell an individual to stop their actions. It will upset me
-
-I may sound selfish at times or too prideful but I try my best not to be too much.
-
-I can talk too much :,D 
-
-Do not copy,screenshot,color pick my skins!inspo is okay (Who would even do that bru my ponies are ugly)
-
-
-Please be VERY aware I don't know ball. example: music bands, music artists, fandoms, etc.I live under a rock okay and I'm currently stuck in one fandom or few fandoms. Please don't make fun of me since its one of my insecurity. I feel stupid and nervous if I dont know what you/they are talking about T_T
--
-
-
+I tend to match a person's chatting style to make sure that person is confortable! 
 
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
