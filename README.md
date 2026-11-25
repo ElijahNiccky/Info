@@ -10,7 +10,7 @@ I can be sensitive at some time— depending on what I feel or how I'm doing in 
 
 I'm often low on social battery for reasons and might speak to close friends only but I can have exceptions, 
 
-I tend to match a person's chatting style to make sure that person is confortable! 
+I tend to match a person's chatting style to make sure that person is comfortable! 
 
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
